@@ -1,0 +1,1 @@
+aprendizados semana 2
